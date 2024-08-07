@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @KhalidAtTelus
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in many things
+- 🌱 I’m currently learning continously every thing
+- 💞️ I’m looking to collaborate on all the good things 
 - 📫 How to reach me Khalid.Khan1@telus.com
 
 <!---
